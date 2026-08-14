@@ -93,7 +93,7 @@ Sou **Administrador** e **Especialista em Licitações e Contratos**, com passag
  
 ## 📫 Onde me encontrar
  
-- **LinkedIn**: [linkedin.com/in/seu-perfil](link)
+- **LinkedIn**: www.linkedin.com/in/carloclemente
 - **E-mail**: cclemente13@gmail.com
 - **GitHub**: você já está aqui! 😄
  
